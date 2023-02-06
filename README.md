@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Motivated Student working toward a Computer Science degree. Hardworking and resourceful individual <br>commended for first-rate collaboration, organizational and time management abilities. Committed to developing a <br>career path and expanding work experience.
 
 
